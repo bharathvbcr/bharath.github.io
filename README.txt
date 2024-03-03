@@ -9,4 +9,3 @@ I am a team player with excellent communication and leadership abilities, as evi
 
 My ultimate goal is to leverage my technical expertise and research experience to make a significant impact in the field of biomedical engineering. I am eager to collaborate with like-minded individuals and organizations to develop innovative solutions that address real-world healthcare challenges.
 
-Keywords: Biomedical Engineering, Electronics, Therapeutics, Microfluidics, Biomaterials, Bioimaging, Data Analysis, Research, Innovation, Leadership
